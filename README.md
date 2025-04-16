@@ -1,1 +1,1 @@
-# xterminal1.github.io
+# terminalX2.github.io
